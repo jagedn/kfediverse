@@ -1,0 +1,3 @@
+Monasterio de Santa Clara 
+
+Este elemento conmemorativo forma parte de una serie erigida con motivo del Plan de Actuación llamado Eje Peatonal Turístico y Cultural Museo del Prado - Palacio de Oriente, promovido conjuntamente por el Ministerio de Fomento, la Comunidad de Madrid y la Empresa Municipal de la Vivienda, siendo galardonado con el Premio Europa Nostra 2003 de Patrimonio Cultural por el tratamiento urbanístico re... 
